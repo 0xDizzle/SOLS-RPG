@@ -5,7 +5,11 @@ The Streetz of Los Santos™ is the first and only San Andreas: Mutli-Player rol
 You can join our Discord server and have a chat with other like-minded people, check us out at https://discord.gg/gNUrWkm and don't forget to follow, like and subscribe to the pages below!
 
 https://www.youtube.com/channel/UC7dePWqmurs4bR-7odm6Yfg
+
 https://steamcommunity.com/groups/streetzofls
+
 https://www.instagram.com/streetzofls/
+
 https://www.facebook.com/streetzofls/
+
 https://twitter.com/streetzofls
