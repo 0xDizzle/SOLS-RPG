@@ -15,4 +15,4 @@ https://www.facebook.com/streetzofls/
 https://twitter.com/streetzofls
 
 # Other Servers
-We've also brought few other servers for you to enjoy, visit our homepage at htts://sols-rpg.com to be redirected to one of the 3 SA-MP and GTA:V servers.
+We've also brought few other servers for you to enjoy, visit our homepage at https://sols-rpg.com to be redirected to one of the 3 SA-MP and GTA:V servers.
