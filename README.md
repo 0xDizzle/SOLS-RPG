@@ -5,5 +5,7 @@ Fear & Respect™ is the first and only San Andreas: Multi-Player roleplay serve
 You can join our Discord server and have a chat with other like-minded people, download Discord (https://discordapp.com/download) and check us out at https://discord.gg/gNUrWkm - don't forget to follow, like and subscribe to the pages below!
 
 https://www.facebook.com/streetzofls/
+
 https://twitter.com/streetzofls
+
 https://www.youtube.com/c/SOLSOfficial
