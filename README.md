@@ -8,4 +8,4 @@ https://www.facebook.com/streetzofls/
 
 https://twitter.com/streetzofls
 
-https://www.youtube.com/c/SOLSOfficial
+https://www.youtube.com/@streetzofls
